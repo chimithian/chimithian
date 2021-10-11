@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @chimithian!
+- 👀 I’m interested in digital privacy.
+- 🌱 I’m currently learning Psychology.
+- 💞️ I’m looking to collaborate on projects.
+- 📫 How to reach me: Twitter - @chimithian
